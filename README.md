@@ -14,9 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Hi, I am Mariana (she/her) 
-I am a creative person that is extremely curious and loves to learn new stuff. 
-I'm currently working only on my coding portafolio. I have a creative coding repository where I've been putting some sketches on p5.js that I especially liked. 
+I'm Mariana (she/her) 
+(*ᴗ͈ˬᴗ͈)ꕤ*.ﾟ
+ 
 
-🌱 I'm learning online to use Solidity🌱
+
 
