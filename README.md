@@ -15,6 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 I'm Mariana (she/her) 
+I like to draw, to code and to listen to music
 (*ᴗ͈ˬᴗ͈)ꕤ*.ﾟ
  
 
